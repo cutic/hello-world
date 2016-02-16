@@ -13,4 +13,4 @@ Things to do today:
 * go home
 * sleep
 
-![](https://garfield.com/comic/2016-02-16)
+![](http://i0.kym-cdn.com/photos/images/original/000/234/765/b7e.jpg)
